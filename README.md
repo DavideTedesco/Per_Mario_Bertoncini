@@ -30,6 +30,8 @@ In collaborazione con: Associazione Nuova Consonanza, Conservatorio di Musica Sa
 
 Per la rassegna “Alziamo il volume” verrà presentato, nel corso della manifestazione,  La bottega del suono di Mario Bertoncini. Maestri e allievi, a cura di Chiara Mallozzi e Daniela Tortora, Napoli, Editoriale Scientifica, 2017
 
+[Link al libro](https://www.editorialescientifica.com/materia/organizzazione/organizzazione-e-musica-1/la-bottega-del-suono-detail.html)
+
 ## Appunti della giornata
 
 
