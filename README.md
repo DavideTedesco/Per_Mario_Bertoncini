@@ -15,11 +15,9 @@ Nicola Sani (Accademia Musicale Chigiana, Siena), Alessandro Sbordoni (Associazi
 
 ore 19 CONCERTO Sala Accademica
 
-Mario Bertoncini Suite ’99 Colori (1999)per pianoforte
-
-                          Tune (1965) per percussioni
-
-                          An American Dream (1974) per pianoforte
+- Mario Bertoncini Suite ’99 Colori (1999)per pianoforte
+- Tune (1965) per percussioni
+- An American Dream (1974) per pianoforte
 
  
 
@@ -183,8 +181,4 @@ Movimento di musicisti che praticano improvvisazione totale
 
 Capacità di B. di fare bottega
 
-Dedica 
-
-
-
-
+Dedica
