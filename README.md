@@ -29,7 +29,7 @@ ingresso libero
 In collaborazione con: Associazione Nuova Consonanza, Conservatorio di Musica Santa Cecilia di Roma
 
 Per la rassegna “Alziamo il volume” verrà presentato, nel corso della manifestazione,  La bottega del suono di Mario Bertoncini. Maestri e allievi, a cura di Chiara Mallozzi e Daniela Tortora, Napoli, Editoriale Scientifica, 2017
- ______________
+
 ## Appunti della giornata
 
 
